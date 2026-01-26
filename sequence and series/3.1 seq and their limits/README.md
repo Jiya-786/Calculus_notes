@@ -1,0 +1,6 @@
+![gmail_images20260126_230014](https://github.com/user-attachments/assets/b42ca79e-bd09-4006-950b-38377ed20fda)
+![1000085765](https://github.com/user-attachments/assets/7baaca31-b903-450b-b8d5-7bc71c1f21e2)
+![1000085766](https://github.com/user-attachments/assets/af126bb7-0d01-4fbf-a72e-a20a9203805a)
+![1000085767](https://github.com/user-attachments/assets/c4667c05-f67e-4947-ae68-1b12139ef54c)
+![1000085768](https://github.com/user-attachments/assets/7c64d50b-362b-497e-9698-bd249ebe1f1b)
+![1000085769](https://github.com/user-attachments/assets/7d7d936a-8753-486d-bba4-3ebb4327e5c3)
